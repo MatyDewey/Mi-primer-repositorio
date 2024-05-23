@@ -4,4 +4,4 @@
 
 ### Buen dia Mundo 👋
 
-### Aguante el faso y la birra 🍺✌️
+### Aguanten los jueguitos y la birra 🍺✌️

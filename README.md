@@ -2,6 +2,6 @@
 
 ## Mi primer repositorio
 
-### Buen dia Mundo 👋✌️ 
+### Buen dia Mundo 👋
 
-### Aguante el lol y la birra 🍺
+### Aguante el faso y la birra 🍺✌️
